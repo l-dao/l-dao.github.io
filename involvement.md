@@ -1,9 +1,9 @@
 # Campus Involvement
 ## University 
 UF Social Media Intern — 2017-2019  
-College of Agricultural Life Sciences Gator Encounter — 2017  
-University Admissins Open House Volunteer — 2017   
-Gator Aide — 2015 
+University Admissions Open House Volunteer — 2017  
+College of Agricultural Life Sciences Gator Encounter — 2017   
+Gator Aide Move-In Volunteer — 2015 
 
 ## Sustainability
 #GatorsBeatWaste Station — 2019  
@@ -22,7 +22,7 @@ UF TRiP — Roan Highlands, NC 2019
 UF TRiP — Max Patch, NC 2017  
 UF TRiP — Linville Gorge, NC 2017  
 
-## Sigma Kappa
+## Sigma Kappa — 2014-2018
 
 # Community Involvement
 Alachua County Regional Science Fair Judge — 2020  
