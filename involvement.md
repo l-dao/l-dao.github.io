@@ -2,19 +2,25 @@
 ## University 
 UF Social Media Intern — 2017-2019
 
-
-
 College of Agricultural Life Sciences Gator Encounter — 2017
+
 University Admissins Open House Volunteer — 2017
+
 Gator Aide — 2015 
 
 ## Sustainability
 #GatorsBeatWaste Station — 2019
+
 Green Gator Graduation Cord Recipient — 2018
+
 Gators Going Green Assistant Director of Projects — 2017-2018 
+
 TailGator Gameday Recycling — 2017
+
 Sustainability Clerk at UF Mail and Document Services — 2016-2018
+
 Organic and Sustainable Agriculture Club — 2016-2017
+
 Community Weatherization Coalition Energy Auditor — 2016-2017
 
 ## Service and Outdoor Recreation
