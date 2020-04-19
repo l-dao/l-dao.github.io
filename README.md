@@ -12,10 +12,10 @@
 ### [Involvement](https://l-dao.github.io/involvement)
 ### [Portfolio](https://lindachidao.wixsite.com/linda)
 ### [In the Wild](https://l-dao.github.io/wildin)
-  
+   
 ### On the Web
 Contact  
-ldao@ufl.edu
+ldao@ufl.edu  
 Social  
 [Twitter](https://mobile.twitter.com/lindachidao) | [LinkedIn](https://www.linkedin.com/in/linda-chi-dao/) |
 [Instagram](https://www.instagram.com/lindachidao/)
