@@ -7,11 +7,12 @@
  * <a href="https://github.com/l-dao/linda/blob/master/LindaDao_CV2020.pdf" target="_blank">CV</a>
  
 
-### [About](https://l-dao.github.io/linda/about)
-### [Research](https://l-dao.github.io/linda/research)
-### [Teaching Experience](https://l-dao.github.io/linda/teachingex)
+### [About](https://l-dao.github.io/about)
+### [Research](https://l-dao.github.io/research)
+### [Teaching Experience](https://l-dao.github.io/teachingex)
+### [Involvement](https://l-dao.github.io/involvement)
 ### [Portfolio](https://lindachidao.wixsite.com/linda)
-### [In the Wild](https://l-dao.github.io/linda/wildin)
+### [In the Wild](https://l-dao.github.io/wildin)
 
 ### On the Web
 #### Contact
