@@ -26,9 +26,10 @@ UF TRiP — Linville Gorge, NC 2017
 
 # Community Involvement
 Alachua County Regional Science Fair Judge — 2020  
+Science Olympiad Regional Event Supervisor — 2020
 Lake Forest Living Classroom — 2018-present  
 Cade Museum Volunteer — 2018  
 The Fest — 2016, 2018  
-Moonlight and Martini's Fundraiser — 2017, 2018  
+Moonlight and Martinis (Al'z Place Fundraiser) — 2017, 2018  
 
-
+*** and I have the tshirts to prove it! ***
