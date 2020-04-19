@@ -14,8 +14,8 @@
 ### [In the Wild](https://l-dao.github.io/wildin)
   
 ### On the Web
-#### Contact
+Contact  
 ldao@ufl.edu
-#### Social
+Social  
 [Twitter](https://mobile.twitter.com/lindachidao) | [LinkedIn](https://www.linkedin.com/in/linda-chi-dao/) |
 [Instagram](https://www.instagram.com/lindachidao/)
