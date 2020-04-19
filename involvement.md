@@ -24,12 +24,12 @@ Organic and Sustainable Agriculture Club — 2016-2017
 Community Weatherization Coalition Energy Auditor — 2016-2017
 
 ## Service and Outdoor Recreation
-Florida Alternative Breaks Ecotourism Trip — 2019 
-Florida Alternative Breaks Sustainable Agriculture Trip — 2016 
-UF Habitat for Humanity Collegiate Challenge — 2015 
-UF TRiP — Roan Highlands, NC 2019 
-UF TRiP — Max Patch, NC 2017 
-UF TRiP — Linville Gorge, NC 2017 
+Florida Alternative Breaks Ecotourism Trip — 2019  
+Florida Alternative Breaks Sustainable Agriculture Trip — 2016  
+UF Habitat for Humanity Collegiate Challenge — 2015  
+UF TRiP — Roan Highlands, NC 2019  
+UF TRiP — Max Patch, NC 2017  
+UF TRiP — Linville Gorge, NC 2017  
 
 ## Sigma Kappa
 
