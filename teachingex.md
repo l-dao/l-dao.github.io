@@ -4,7 +4,7 @@
 2017 - present
 - teach students safe practices to diagnose and treat medical and trauma scenarios
 - demonstrate proper CPR, backboarding, slings, tourniquets applications
-- able to triage in a mass causualty scenario
+- able to triage in a mass casualty scenario
 
 ## Scientist in Every Florida School
 2019 - present
