@@ -18,4 +18,4 @@ Contact
 ldao@ufl.edu  
 Social  
 [Twitter](https://mobile.twitter.com/lindachidao) | [LinkedIn](https://www.linkedin.com/in/linda-chi-dao/) |
-[Instagram](https://www.instagram.com/lindachidao/)
+[Instagram](https://www.instagram.com/lindachidao/) | [Git](https://github.com/l-dao)
