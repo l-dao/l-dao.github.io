@@ -3,7 +3,7 @@
 ## UF Emergency Medical Responder TA
 2017 - present
 - teach students safe practices to diagnose and treat medical and trauma scenarios
-- demonstrate proper CPR, backboarding, slinting, and tourniquets techniques
+- demonstrate proper CPR, backboarding, splinting, and tourniquets application techniques
 - able to triage in a mass casualty scenario
 
 ## Scientist in Every Florida School
