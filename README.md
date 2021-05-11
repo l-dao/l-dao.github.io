@@ -4,7 +4,7 @@
  * University of Florida  
  * Second Year PhD Student  
  * Graduate Research Assistant
- * <a href="https://github.com/l-dao/linda/blob/master/LindaDao_CV2020.pdf" target="_blank">CV</a>
+ * <a href="https://drive.google.com/file/d/1OfFGVdUXFtMBLnEVTohIdO0s-yRUBKr-/view?usp=sharing">CV</a>
   
 ### [About](https://l-dao.github.io/about)
 ### [Research](https://l-dao.github.io/research)
