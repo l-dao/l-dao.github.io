@@ -4,7 +4,7 @@
  * University of Florida  
  * Second Year PhD Student  
  * Graduate Research Assistant
- * <a href="https://drive.google.com/file/d/1OfFGVdUXFtMBLnEVTohIdO0s-yRUBKr-/view?usp=sharing">CV</a>
+ * <a href="https://drive.google.com/file/d/186QKUUXlPVV2x5jcMn4xSFsTb70GXrel/view?usp=sharing">CV</a>
   
 ### [About](https://l-dao.github.io/about)
 ### [Research](https://l-dao.github.io/research)
